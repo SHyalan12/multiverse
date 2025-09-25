@@ -1,0 +1,1 @@
+Heimdall's vision is blocked by *ancient magic*, unware of New Asgard's danger.
